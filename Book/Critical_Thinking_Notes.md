@@ -13,3 +13,11 @@ by Jonathan C. Smith (Author)
 
 https://www.amazon.com/Critical-Thinking-Pseudoscience-Jonathan-Smith/dp/111902935X
 
+
+
+## Think Smarter: Critical Thinking to Improve Problem-Solving and Decision-Making Skills Hardcover 
+by Michael Kallet (Author)
+– April 7, 2014
+
+https://www.amazon.com/Think-Smarter-Critical-Problem-Solving-Decision-Making/dp/1118729838
+
